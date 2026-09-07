@@ -1,5 +1,4 @@
-Below is a **clean, professional, plagiarism-free README.md** for your **Varuna – Health & Water Quality Monitoring System**.
-After you confirm, I will generate the **full 80-page project report (with diagrams, tables, rewritten content)**.
+
 
 ---
 
